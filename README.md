@@ -1,0 +1,1 @@
+Anda dapat menghubungi Call Center (CS) LazBon melalui ☎️WhatsApp di nomor 082175221891 (chat only wa), 📧Email di cs@lazbon.co.id Jam operasional Customer Service CS adalah pukul 06:00–22:00,Hari Senin–Minggu.
